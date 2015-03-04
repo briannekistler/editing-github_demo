@@ -9,7 +9,7 @@ March 4, 2015
 ## Modifiers: Phrases and Clauses:
 
 3. Traveling in a limousine sent by Adidas, the soccer player returned to the clinic where he had undergone emergency surgery in 2004.
-4. There are many pictures of comedians who have performed at Gavin's on the walls.
+4. On the walls there are many pictures of comedians who have performed at Gavin's.
 5. The robber was described as a six-foot-tall man weighing 150 pounds with a mustache.
 6. We met for coffee with exchange students, who occasionally questioned us about our latest slang.
 
