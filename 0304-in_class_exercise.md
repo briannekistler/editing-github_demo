@@ -11,7 +11,7 @@ March 4, 2015
 3. Traveling in a limousine sent by Adidas, the soccer player returned to the clinic where he had undergone emergency surgery in 2004.
 4. On the walls there are many pictures of comedians who have performed at Gavin's.
 5. The robber was described as a 150-pound, six-foot-tall man with a mustache.
-6. We met for coffee with exchange students, who occasionally questioned us about our latest slang.
+6. The exchange students we met for coffee questioned us occasionally about our latest slang.
 
 ## Split Infinitives:
 
